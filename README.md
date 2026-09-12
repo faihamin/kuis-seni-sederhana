@@ -27,6 +27,7 @@ Aplikasi kuis interaktif untuk menguji pengetahuan tentang seni tari tradisional
 
 - GitHub: [@faihamin](https://github.com/faihamin)
 - Email: faihloireng@gmail.com
+- WhatsApp: [+62 852 9302 1317](https://wa.me/qr/3CLLXYMLX243N1)
 
 ---
 
